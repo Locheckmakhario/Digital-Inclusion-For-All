@@ -6,3 +6,8 @@ This project aims to provide digital literacy and access to PWDs and underserved
 
 
 ![IMG-20240129-WA0082](https://github.com/Locheckmakhario/Digital-Inclusion-For-All/assets/95300426/e963daf8-67df-473f-aeee-665fe614846c)
+
+
+
+https://github.com/Locheckmakhario/Digital-Inclusion-For-All/assets/95300426/c5de9989-13ae-421b-9d35-404db0d8dcf0
+
